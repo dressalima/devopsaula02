@@ -1,3 +1,3 @@
 De uns dias
-Me negaram amor
+Me negaram agua
 Ela ta que tá
