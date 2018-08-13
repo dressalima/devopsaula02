@@ -1,3 +1,3 @@
 De uns dias
-Me negaram amor
+Louca
 Ela ta que tá
